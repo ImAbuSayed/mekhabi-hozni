@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حياتي تعالي بقربي
+> نار الشوق بقلبي تنادي
+> في عيوني غرامي الخفي
+> نور الحب يضوي فؤادي
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
